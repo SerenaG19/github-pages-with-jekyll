@@ -1,0 +1,3 @@
+Did you hear about the cheese factory that exploded?
+
+There was da brie everywhere...
